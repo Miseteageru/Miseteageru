@@ -1,1 +1,1 @@
-<img src="https://cdn.discordapp.com/attachments/988142568107823217/1322899870402744380/Untitled246_20241028221920.png?ex=6783b183&is=67826003&hm=7479c71fde9843b623931ed07ebff26f7510a2736d2d9cdd2bab0c2e4eb1c73a&">
+<img src="https://static.wikia.nocookie.net/ensemble-stars/images/d/d2/%28Encounter_on_Cruise_Ship%29_Natsume_Sakasaki_Chibi.gif/revision/latest?cb=20220723211211">
